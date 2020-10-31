@@ -1,1 +1,1 @@
-# hello-world
+# hello-world   I am very excited and scared at the same time . I dreamed of becoming a nurse for over 20 years but obstacles kept getting in my way. Yes they still are but, I am still working at achieving this goal because ,I know I can do this for me. I always thought of myself as an under achiever a nobody but I was willingto make myself into something and treat others kindly and with love and compassion to be be dedicated to my patients.
